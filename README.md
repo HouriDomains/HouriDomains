@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sanni Aliyu
 - 👀 I’m interested in Domain flipping and Front end Development 
-- 🌱 I’m currently learning Back end development 
+- 🌱 I’m currently learning Back end development projects (am open to business)
 - 💞️ I’m looking to collaborate on freelance ideas
 - 📫 How to reach me on mobile +13232850668
 
